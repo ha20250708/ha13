@@ -10,4 +10,4 @@
 
 平台收录了精选的清新美女视频，涵盖了各种类型的成人影片，包括高清、女优作品、系列片等，满足不同观众的需求。所有视频均提供高清播放，支持多个设备观看，用户可以根据网络环境获得最佳的观影体验，无广告干扰，极致观看。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha13 ）</span>
